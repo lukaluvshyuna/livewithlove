@@ -26,8 +26,8 @@
   <p align="center">
   <strong>i am so whimsy</strong>
 
- [prns.cc][reference text] <code>⟡</code> [text.is][1]
+ [prns.cc][reference text] <code>⟡</code> [rentry][1]
 
 
-[reference text]: https://pronouns.cc/@beautylieswithin/haven/
-[1]: https://text.is/stagedduo/
+[reference text]: https://pronouns.cc/@aneternalpage/
+[1]: https://rentry.co/zydone
