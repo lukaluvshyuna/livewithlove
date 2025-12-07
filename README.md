@@ -6,7 +6,7 @@
 <img src="https://i.postimg.cc/qM0VYd6L/IMG-8483.gif" width="100" height="100" border="10"/>
 </p>
 <p align="center">
-<strong>vonnan</strong> or luka
+<strong>vonnan</strong> or pony skin!
 
 <p align="center">
   she her   <code>⟡</code>   fem terms <strong>only</strong>
@@ -24,7 +24,7 @@
   ***
 
   <p align="center">
-  <strong>i am so whimsy</strong>
+  <strong>i'm comedically timed and mentally challenged :p</strong>
 
  [prns.cc][reference text] <code>⟡</code> [rentry][1]
 
